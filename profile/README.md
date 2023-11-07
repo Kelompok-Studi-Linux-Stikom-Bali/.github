@@ -1,1 +1,1 @@
-# Kelompok Studi Linux ITB Stikom Bali
+# Kelompok Studi Linux ITB STIKOM Bali
